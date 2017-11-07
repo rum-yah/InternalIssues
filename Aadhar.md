@@ -1,0 +1,2 @@
+- Addhar for unified financial infrastructure
+- Since demonetisation, strong push for digital payments
