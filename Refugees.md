@@ -1,0 +1,4 @@
+- India has not signed Refguee convention and does not have domestic asylum law
+- No formal legal identity for refugees, since refugee card nor temporary visa could be accepted as proof for opening bank accounts
+- Rely on parallel economy
+- Such marginalised group should be integrated into the mainstream
