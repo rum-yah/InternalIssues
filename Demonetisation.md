@@ -1,1 +1,3 @@
-
+- Aims at
+  - eliminating underground economny
+  - achieving full financial inclusion
